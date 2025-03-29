@@ -6,6 +6,10 @@
 3月29日(土) 3150×LUSHBOMU vol.4
 ▶メインイベント
 
+[生中継🔴📺▶👉🏻 https://t.co/DToYpZh8Fa](https://t.co/DToYpZh8Fa)
+
+[生中継🔴📺▶👉🏻 https://t.co/DToYpZh8Fa](https://t.co/DToYpZh8Fa)
+
 IBF世界フライ級タイトルマッチ
 
 矢吹正道(LUSH緑) vs アンヘル・アヤラ(メキシコ)
